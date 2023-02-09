@@ -1,2 +1,4 @@
 # badavr
-TET NINO PRODUCTION. BADAVR ABU KEDAVR.
+TETA NINO PRODUCTION. BADAVR ABU KEDAVR.
+
+Ита приект дла весаеля. БАДАВР СМОТРЕТЬ ВИДЕО!!!
